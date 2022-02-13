@@ -1,1 +1,1 @@
-# I Hate Exams
+# We Hate Exams
